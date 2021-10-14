@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sudhanshu047
+- 👋 Hi, I’m @Sudhanshu
 - 👀 I’m interested in ... Creativity, Productivty and writing
 - 🌱 I’m currently learning ... Atificial intelligence 
 - 💞️ I’m looking to collaborate on ... Blogging and creating educational content 
